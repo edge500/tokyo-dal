@@ -1,4 +1,16 @@
 
+📐 https://quantom.mycrosoft.com/mx-th/tools/quacktum-katas 🧃👀 
+
+
+
+
+
+🧟irala..🪓🩰
+
+
+
+
+
 
 ### 👋 Hey, I'm **Tokyo**, *I vibe-code with passion, beats, and AI.*
 
